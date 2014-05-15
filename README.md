@@ -1,6 +1,2 @@
-cos-smacznego
-=============
-sałatki
 
-makarony
 
